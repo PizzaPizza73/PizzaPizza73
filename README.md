@@ -1,4 +1,6 @@
-- 👋 Hey there, it's PizzaPizza73!
+- 👋 Hey there, it's Pizza!
+- 🎮 Video gamer and Wii U enthusiast
+- 🍕 Pizza lover
 - 😄 Pronouns: he/him.
 - ⚡ Fun fact: Americans eat approximately 350 slices of pizza per second!
 
